@@ -1,0 +1,2 @@
+# Skola
+Věci ze školy
